@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: you can email me at jesse.groves124@outlook.com
 - 😄 Pronouns: He/him
-- ⚡ Fun fact: if you want to make an old style rocket just use gunpowder. I won't tell you the recipe but if you find it out don't try it at home.
+- ⚡ Fun fact: if you want to make an old style rocket just use gunpowder. I won't tell you the recipe but if you find it out don't try it at home because you might get very injured.
 
 <!---
 DisGameTuHard/DisGameTuHard is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
